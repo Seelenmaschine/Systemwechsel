@@ -2,7 +2,7 @@
 title: Systemwechsel: Mensch
 ---
 
-# Systemwechsel: Mensch
+# "Systemwechsel: Mensch"
 
 ## Von meinem Quereinstieg als Diplom-Informatiker (FH) in die Soziale Arbeit.
 
