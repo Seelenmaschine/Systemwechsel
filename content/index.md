@@ -1,5 +1,5 @@
 ---
-title: Systemwechsel: Mensch
+title: "Systemwechsel: Mensch"
 ---
 
 # "Systemwechsel: Mensch"
