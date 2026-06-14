@@ -1,1 +1,1 @@
-Ich wurde auf eine Stellenausschreibung der Diakonie aufmerksam, in der ein/e Ehrenamtliche/r gesucht wurde, die in der Betreuungsstelle aushilft. Zwar war bei meinem folgenden Anruf schon klar, dass 
+Ich wurde auf eine Stellenausschreibung der [Diakonie](https://www.lebensraum-diakonie.de/) aufmerksam, in der ein/e Ehrenamtliche/r gesucht wurde, die in der Betreuungsstelle aushilft. Zwar war bei meinem folgenden Anruf schon klar, dass 
